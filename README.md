@@ -1,1 +1,1 @@
-# aar kotodin rege thakbi modon
+# samdotslash
